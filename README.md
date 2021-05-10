@@ -9,6 +9,6 @@ Just in case, I clear my data visualization.
 
 ## Participation record
 
-### Studnet Spring Cup 2021 Apeil ~ May
+### SIGNATE Student Cup 2021 Spring Apeil ~ May
 
 #### 45/220 Bronze medal
