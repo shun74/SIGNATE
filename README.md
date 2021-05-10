@@ -11,4 +11,4 @@ Just in case, I clear my data visualization.
 
 ### SIGNATE Student Cup 2021 Spring Apeil ~ May
 
-#### 45/220 Bronze medal
+#### 45th in 220 Bronze medal
