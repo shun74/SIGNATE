@@ -1,10 +1,11 @@
 # SIGNATE
 
-My SIGNATE Competition records.
+My SIGNATE Competition records.  
+[Account Page](https://signate.jp/users/65443)
 
 ## Notice
 
-Can't upload any competition data for Comp Rules.
+Can't upload any competition data for Comp Rules.  
 Just in case, I clear my data visualization.
 
 ## Participation record
